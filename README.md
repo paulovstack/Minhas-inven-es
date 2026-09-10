@@ -1,2 +1,2 @@
 # Minhas-inven-es
-Aqui estará todas as minhas idéias que tenho para divulgação um pouco de minhas capacidades
+Este espaço reúne minhas ideias, projetos e conteúdos, mostrando um pouco das minhas habilidades, conhecimentos e criatividade.
